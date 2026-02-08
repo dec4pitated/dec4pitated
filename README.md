@@ -1,7 +1,14 @@
 <p align="center">
-  
-<img width="736" height="377" alt="38 sin título_20260105162157" src="https://github.com/user-attachments/assets/f9f06005-6a55-4c8e-a3d3-13516175b622" />
 
+  <img width="1280" height="129" alt="tumblr_cf058c8d0ebb0d8a6600f7c5e18de595_8200ae10_1280" src="https://github.com/user-attachments/assets/77894692-1f0c-41c5-8da3-4c22cfa57491" />
+
+<p align="center">
+
+<img width="735" height="500" alt="52 sin título_20260207215835" src="https://github.com/user-attachments/assets/22e919ab-7e7e-44c6-bd5d-d0e4adcddfbb" />
+
+<p align="center">
+
+<img width="1280" height="129" alt="tumblr_31fd5135192ba83c7d3a8536dfd732c1_35f3fe8f_1280" src="https://github.com/user-attachments/assets/ebf84add-e250-4793-a166-2480ab75b511" />
 
 
 <p align="center">
@@ -26,7 +33,7 @@ $\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{C+h . afk}}$
-$\color{#FFFFFF}{\text{17 yo}}$
+$\color{#FFFFFF}{\text{silly}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{W2i}}$
@@ -46,6 +53,10 @@ $\color{#FFFFFF}{\text{Dangaronpa . forsaken . Cookie run}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{gravity falls . vanitas no carte}}$
+
+<p align="center">
+$\color{#FFFFFF}{\text{saihate station . zeno remake}}$
+
   
 <p align="center">
 $\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
