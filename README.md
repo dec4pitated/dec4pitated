@@ -67,3 +67,14 @@ $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
 ![17705195268259083740647698228540](https://github.com/user-attachments/assets/18bd5b3b-3977-415b-9338-ac9d18ec1242)
 ![17705196145437890603230079935704](https://github.com/user-attachments/assets/107988c5-31c1-4a92-a907-5e86692f3a0c)
 ![17705196491793311554323119713173](https://github.com/user-attachments/assets/da89669f-9875-4ffa-81b2-0b430322a2c6)
+
+<p align="center">
+  
+![17705920649263407691791651903649](https://github.com/user-attachments/assets/18a256f6-b0ab-4bb6-b145-ba0a4cc9cb83)
+  
+![17705921084873098504541822271445](https://github.com/user-attachments/assets/e8e69c33-727a-4f65-a38d-e1c1e8b92723)
+
+<img width="99" height="56" alt="17705922003404810388552676664088" src="https://github.com/user-attachments/assets/b122212f-af3e-4898-a813-c544cac1a7be" />
+
+![17705923769161004314401928465896](https://github.com/user-attachments/assets/ad65596c-0993-4177-9d0a-896ba1e77a16)
+
