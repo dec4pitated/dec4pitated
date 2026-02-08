@@ -1,13 +1,14 @@
 <p align="center">
 
-  <img width="1280" height="129" alt="tumblr_cf058c8d0ebb0d8a6600f7c5e18de595_8200ae10_1280" src="https://github.com/user-attachments/assets/77894692-1f0c-41c5-8da3-4c22cfa57491" />
+<img width="1280" height="129" alt="tumblr_cf058c8d0ebb0d8a6600f7c5e18de595_8200ae10_1280" src="https://github.com/user-attachments/assets/bdf9565e-7a89-4538-9a96-ed12fc128617" />
+
 
 <p align="center">
 
-<img width="735" height="500" alt="52 sin título_20260207215835" src="https://github.com/user-attachments/assets/22e919ab-7e7e-44c6-bd5d-d0e4adcddfbb" />
+<img width="735" height="762" alt="53 sin título_20260207223846" src="https://github.com/user-attachments/assets/201d2b25-1edd-48c7-bbbb-74df84f5b53d" />
+
 
 <p align="center">
-
 <img width="1280" height="129" alt="tumblr_31fd5135192ba83c7d3a8536dfd732c1_35f3fe8f_1280" src="https://github.com/user-attachments/assets/ebf84add-e250-4793-a166-2480ab75b511" />
 
 
@@ -18,18 +19,17 @@
 </p>
 
 <p align="center">
-$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/283adb38-c771-4e48-b669-a5281b6bba0a" />
-$\color{#FFFFFF}{\text{Intp 5w4 . He/they}}$
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/df2a422d-d61b-4bc7-aff3-afe59b1c50ed" />$\color{#FFFFFF}{\text{Intp 5w4 . He/they}}$
 
 <p align="center">
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/964ba0eb-e54c-4a18-b4fd-66062b8046ab" />
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/df2a422d-d61b-4bc7-aff3-afe59b1c50ed" />
 $\color{#FFFFFF}{\text{Mikaela/fyodor kinnie.}}$
   
 <p align="center">
-$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{C+h . afk}}$
@@ -39,11 +39,11 @@ $\color{#FFFFFF}{\text{silly}}$
 $\color{#FFFFFF}{\text{W2i}}$
 
 <p align="center">
-$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fae9f169-62e0-4d7f-be34-bcdc782dedfe" />
-$\color{#FFFFFF}{\text{owari no seraph . okegom}}$
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4251e4ee-bf2c-4bf6-91e0-b46e85b5fe2a" />
+  $\color{#FFFFFF}{\text{owari no seraph . okegom}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{bsd . black butler . chainsaw man}}$
@@ -59,4 +59,11 @@ $\color{#FFFFFF}{\text{saihate station . zeno remake}}$
 
   
 <p align="center">
-$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+  
+<p align="center">
+  
+![17705193979366317848367982274008](https://github.com/user-attachments/assets/190105ac-f9a2-44e8-b9d5-e94ce18661a2)
+![17705195268259083740647698228540](https://github.com/user-attachments/assets/18bd5b3b-3977-415b-9338-ac9d18ec1242)
+![17705196145437890603230079935704](https://github.com/user-attachments/assets/107988c5-31c1-4a92-a907-5e86692f3a0c)
+![17705196491793311554323119713173](https://github.com/user-attachments/assets/da89669f-9875-4ffa-81b2-0b430322a2c6)
